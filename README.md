@@ -1,2 +1,2 @@
 # Funiro
-JHust see ;)
+Just see ;)
